@@ -1,5 +1,5 @@
 <p align="center">
-![hey](https://komarev.com/ghpvc/?username=navia-caspar&color=ff69b4)
+clorivia and togachako believer
 <p align="center">
 <img src="https://cdn.donmai.us/sample/55/0a/__raiden_shogun_yae_miko_and_sangonomiya_kokomi_genshin_impact_drawn_by_maiqo__sample-550a72a2c4c96fd99b1bba41a6318d07.jpg" border="10"/>
 </p>
