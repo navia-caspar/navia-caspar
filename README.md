@@ -1,7 +1,7 @@
 <p align="center">
 clorivia and togachako believer
 <p align="center">
-<img src="https://cdn.donmai.us/sample/55/0a/__raiden_shogun_yae_miko_and_sangonomiya_kokomi_genshin_impact_drawn_by_maiqo__sample-550a72a2c4c96fd99b1bba41a6318d07.jpg" border="10"/>
+<img src="https://media.discordapp.net/attachments/1248525583760101428/1374203302337581066/IMG_20250520_095300.png?ex=682d320e&is=682be08e&hm=eba4193852711998e60fcf616d83651ef917b85502d56b83e37931c7a90db591&=&format=webp&quality=lossless" border="10"/>
 </p>
 <p align="center">
 usually w my wives @clorrinde & @aquilayuna
