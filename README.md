@@ -3,7 +3,7 @@ three-way kiss with <a href="https://github.com/aquilayuna" target="_blank">yuyu
 <p align="center">
 <img src="https://files.catbox.moe/o4u4t3.png?ex=682d320e&is=682be08e&hm=eba4193852711998e60fcf616d83651ef917b85502d56b83e37931c7a90db591&=&format=webp&quality=lossless" border="10"width="150" height="100" /> <img src="https://files.catbox.moe/6qb36a.png?ex=682d320e&is=682be08e&hm=eba4193852711998e60fcf616d83651ef917b85502d56b83e37931c7a90db591&=&format=webp&quality=lossless" border="10" width="150" height="100" /> <img src="https://files.catbox.moe/hon4xc.png?ex=682d320e&is=682be08e&hm=eba4193852711998e60fcf616d83651ef917b85502d56b83e37931c7a90db591&=&format=webp&quality=lossless" border="10" width="150" height="100" />
 <p align="center">
-at the same damn time.
+at the SAME DAMN TIME!
 <p align="center">
 be a good (preferred term) and read this for me! https://rentry.co/literaryae
 <p align="center">
