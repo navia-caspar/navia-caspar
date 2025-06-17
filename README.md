@@ -8,4 +8,4 @@ usually with my wives haha
 <p align="center">
 be a good (preferred term) and read this for me! https://rentry.co/literaryae
 <p align="center">
-if you wanna help make this look less uglier, talk to me
+so homophobes what's it like being bitchless and ugly
