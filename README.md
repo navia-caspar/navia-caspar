@@ -9,6 +9,8 @@ be a good (preferred term) and read this for me! https://rentry.co/literaryae
 <p align="center">
 although that's kinda outdated so my bad.
 <p align="center">
-if you get into online drama WAYYY too often then do not interact with me! you are genuinely such a waste of space! especially people who insist blackwashing / heterophobia is a real thing LIKE!!! SHUT THE FUCK UP!!! I'm tired of you RACIST STRAGGOTS! KILL YOURSELVES! 
+wassup my name is artemis but you can call me temi!!! I am a horned up poly lesbian and I love my wives more than any of you mothafuckas ever will. GO FUCK YOURSLEVES. HELL YEAH.
 <p align="center">
-ships that SMELL LIKE SHIT : wri*rinde, wrionavia, avenpaz, kavelou, dehyatham, ifasca (EWWW), yaeyato, akian, toyahane, mizitill, everything else that is straight except hetships outside hoyogames LOL!
+feel free to interact with me if you're normal (queer) I want friends but maybe friends that also like to take some time off their screens... you know... buuut I'm also a masochistic ragebaiter!!! :P
+<p align="center">
+ships that SMELL LIKE SHIT : wri*rinde, wrionavia, avenpaz, kavelou, dehyatham, ifasca (EWWW), yaeyato, akian, toyahane, mizitill, everything else that is straight!!! (I like a lot of hetships outside of hoyogames actually.)
