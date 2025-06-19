@@ -7,4 +7,8 @@ at the SAME DAMN TIME!
 <p align="center">
 be a good (preferred term) and read this for me! https://rentry.co/literaryae
 <p align="center">
-so homophobes what's it like being bitchless and ugly
+although that's kinda outdated so my bad.
+<p align="center">
+if you get into online drama WAYYY too often then do not interact with me! you are genuinely such a waste of space and I can assure you there's better things to worry about. especially people who insist blackwashing / heterophobia is a real thing LIKE!!! SHUT THE FUCK UP!!! I'm tired of you RACIST STRAGGOTS! KILL YOURSELVES! 
+<p align="center">
+ships that SMELL LIKE SHIT : wri*rinde, wrionavia, neuvifuri, kavelou, dehyatham, ifasca (EWWW), yaeyato, akian, toyahane, mizitill, everything else that is straight except hetships outside hoyo & pjsk LOL!
