@@ -13,4 +13,4 @@ wassup my name is artemis but you can call me temi!!! I am a horned up poly lesb
 <p align="center">
 feel free to interact with me if you're normal (queer) I want friends but maybe friends that also like to take some time off their screens... you know... buuut I'm also a masochistic ragebaiter!!! :P
 <p align="center">
-heterophobia is not a thing but if it is I embody it. joke but yeah disrespectful straggots (especially religious dumbfucks) do not touch me you are disgusting
+heterophobia is not a thing but if YOU think it is then I am the embodiment of it. joke but yeah disrespectful straggots (especially religious dumbfucks) do not touch me you are disgusting
