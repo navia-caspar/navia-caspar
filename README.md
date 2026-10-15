@@ -21,7 +21,9 @@
 ###### * this account is used for both comf characters + f/os .
 
 ###### thank you <3 [@pt-walk-of-fame](https://github.com/pt-walk-of-fame) [@pt-hall-of-media](https://github.com/pt-hall-of-media) [@pt-of-awesomeness](https://github.com/pt-of-awesomeness)
- 
+
+###### * art used is by @/dxnut00 on X
+
 </details
 
 </div>
