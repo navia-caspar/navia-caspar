@@ -18,9 +18,9 @@
 
 ###### * ponies with " ♡ " are my f/os , don ' t bother trying to compete
 ###### w me over them . i block and hide ppl who harass me .
-###### this account is used for comf characters + f/os .
+###### * this account is used for both comf characters + f/os .
 
-###### thank you <3 [@pt-walk-of-fame](https://github.com/pt-walk-of-fame) [@pt-hall-of-media](https://github.com/pt-hall-of-media)
+###### thank you <3 [@pt-walk-of-fame](https://github.com/pt-walk-of-fame) [@pt-hall-of-media](https://github.com/pt-hall-of-media) [@pt-of-awesomeness](https://github.com/pt-of-awesomeness)
  
 </details
 
