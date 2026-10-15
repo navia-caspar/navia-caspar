@@ -20,7 +20,7 @@
 ###### w me over them . i block and hide ppl who harass me .
 ###### this account is used for comf characters + f/os .
 
-###### thank you <3 [@pt-walk-of-fame](https://github.com/pt-walk-of-fame)
+###### thank you <3 [@pt-walk-of-fame](https://github.com/pt-walk-of-fame) [@pt-hall-of-media](https://github.com/pt-hall-of-media)
  
 </details
 
