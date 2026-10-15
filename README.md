@@ -12,5 +12,13 @@
 ###### [REPRI](https://repris.org/naviacaspar)　<img src="https://file.garden/aRliYxn-C17HIW_i/tumblr_6fee0c071074d1fe174a4ed7cef0f22d_ec4e6d26_75.webp" width=15>　[LISTO](https://listography.com/sayeonlee)　<img src="https://file.garden/aRliYxn-C17HIW_i/tumblr_6fee0c071074d1fe174a4ed7cef0f22d_ec4e6d26_75.webp" width=15>　[ATABOOK](https://reindrop.atabook.org)
 
 #### <img src="https://file.garden/aRliYxn-C17HIW_i/tumblr_8a8c954f3a004ecc1a055e63ea6b1d35_4483ad87_75.webp">　the navia caspar lover on ponytown　<img src="https://file.garden/aRliYxn-C17HIW_i/tumblr_244cc609afedd4a43a0d4e2cdeb5d7eb_0586d68e_75.webp">
+
+<details>
+  <summary> byi </summary>
+
 ###### * ponies with " ♡ " are my f/os , don ' t bother trying to compete
 ###### w me over them . i block and hide ppl who harass me .
+ 
+</details
+
+</div>
