@@ -1,6 +1,6 @@
 
 <div align="center">
-<img src="https://file.garden/aRliYxn-C17HIW_i/navia-removebg-preview.png" width="420">
+<img src="https://file.garden/aRliYxn-C17HIW_i/navia-removebg-preview.png" width="320">
   
 ##### $\textcolor{#D9A063}{\text{" My favorite thing to be called is "partner" — but only by you, of course. "}}$
   
